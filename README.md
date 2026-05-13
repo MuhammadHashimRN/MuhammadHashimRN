@@ -47,4 +47,4 @@ I'm an AI engineer-in-training with hands-on experience shipping end-to-end AI s
 ### Get in touch
 
 I'm currently open to **full-time AI/ML roles** starting mid-2026.
-Best reached at **muhammad808alvi@gmail.com**.
+Best reached at **hashim.rabnawaz@gmail.com**.
